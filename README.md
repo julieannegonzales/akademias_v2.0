@@ -1,1 +1,0 @@
-# akademias_v2.0
